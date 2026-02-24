@@ -11,7 +11,7 @@ Sometimes, an event may shatters our existing model of the world because it goes
 The way that we form beliefs about the world, ourselves and morality interests me - it is a constant updating, and in the process emotions guide us to simulate the future and to chart a course toward it. 
 
 
-## My Grad School Redemption Arc Playlist (music for surviving a PhD):
+## My Grad School Playlist (music for surviving a PhD):
 
 #### Take Back the Power 
 https://www.youtube.com/watch?v=dvziF2OV_As&list=RDdvziF2OV_As&start_radio=1
