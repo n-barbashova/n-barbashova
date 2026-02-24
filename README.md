@@ -22,13 +22,21 @@ It is all ours, it is all ours (take back the power)
 
 Go tell a friend we gon' take back the power"   
  
+
 Like a Prayer - Choir Version 
+
 https://www.youtube.com/watch?v=NdzOv1t8Ie4&list=RDNdzOv1t8Ie4&start_radio=1 
 
+
 Zen
+
 https://www.youtube.com/watch?v=8khQbstbwDQ&list=RD8khQbstbwDQ&start_radio=1
 
+"Give me fucking zen" 
+
+
 Mouth Of The River 
+
 https://www.youtube.com/watch?v=YiZCzG4RF1M 
 
 "Oh, the mouth of the river
@@ -37,5 +45,7 @@ And the wrath of the giver
 
 With the hands of a sinner" 
 
+
 The Man 
+
 https://www.youtube.com/watch?v=fm660vIn8Tg 
